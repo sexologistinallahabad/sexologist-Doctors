@@ -1,0 +1,2 @@
+# sexologist-Doctors
+Nightfall or nocturnal emissions is a common problem among men. It affects men of all ages, however, men between the age of 18 to 30 are the most affected. Nightfall, also called swapnadosh in Ayurveda refers to involuntary ejaculation during the night or early morning hours. This discharge of semen during sleep is usually attributed to hormonal changes in the body. With the onset of puberty, hormonal changes along with sexual desires evoke stimulation and may lead to nightfall.
